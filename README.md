@@ -2,4 +2,4 @@
 
 Hello all Space Apes!
 
-Im MsTiik. I like success.
+Im MsTiik, and i like success.
